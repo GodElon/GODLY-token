@@ -1,0 +1,2 @@
+# GODLY-token
+GODELON
